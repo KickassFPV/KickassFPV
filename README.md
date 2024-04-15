@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @KickassFPV or Alex
+- 👋 Hi, I’m @BrokenLung or Alex
 - 👀 I’m interested in ... Drone flying , gaming , music
 - 🌱 I’m currently learning ... nothing yet
 - 💞️ I’m looking to collaborate on ... I'll give what I know
